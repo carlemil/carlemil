@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @carlemil
-- 👀 I’m interested in motorbikes
+- 👀 I’m interested in motorbikes and revolver shooting
 - 🌱 I’m currently learning how to raise kids
 - 💞️ I’m looking to collaborate on anything odd in 2d graphics
 - 📫 How to reach me, linkedin, email by phone.
